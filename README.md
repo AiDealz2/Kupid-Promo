@@ -3,12 +3,12 @@
 
 Get **80% OFF** on Kupid AI virtual companions with our **exclusive 2025 promo code**! Create your perfect AI girlfriend or boyfriend for lifelike conversations and emotional connection.  
 ---
-## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)**
+## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)**
 
-## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)**
+## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)**
 
 ---
-[![Discount button](https://github.com/user-attachments/assets/8ba835f2-8890-47da-9f69-c6be66980d77)](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)
+[![Discount button](https://github.com/user-attachments/assets/8ba835f2-8890-47da-9f69-c6be66980d77)](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)
 
 ---
 ![Screenshot_286](https://github.com/user-attachments/assets/9eb374e7-5974-4228-82e7-ff71c32aff39)
@@ -43,12 +43,12 @@ Get **80% OFF** on Kupid AI virtual companions with our **exclusive 2025 promo c
 
 ---
 ---
-## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)**
+## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)**
 
-## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)**
+## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)**
 
 ---
-[![Discount button](https://github.com/user-attachments/assets/8ba835f2-8890-47da-9f69-c6be66980d77)](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)
+[![Discount button](https://github.com/user-attachments/assets/8ba835f2-8890-47da-9f69-c6be66980d77)](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)
 ## **2. Why Choose Kupid AI?**  
 
 ✅ **Lifelike Personality** – Learns and adapts to your communication style  
@@ -70,10 +70,13 @@ Get **80% OFF** on Kupid AI virtual companions with our **exclusive 2025 promo c
 👉 **Limited-Time Offer:** Get **[80% OFF Kupid AI](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)** now!  
 ![Screenshot_288](https://github.com/user-attachments/assets/0ebf1ae7-937f-4cbc-ad37-714af3cf02c3)
 ---
-## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)**
+---
+## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)**
+
+## 🎁 **[Use This Link To Get 90% OFF :](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)**
 
 ---
-[![Discount button](https://github.com/user-attachments/assets/8ba835f2-8890-47da-9f69-c6be66980d77)](https://www.kupid.ai/create-ai-girlfriend?src_ref=&sub_id=rambo)
+[![Discount button](https://github.com/user-attachments/assets/8ba835f2-8890-47da-9f69-c6be66980d77)](https://www.kupid.ai/create-ai-girlfriend?src_ref=84df0846a)
 ---
 
 ## **4. Active Kupid AI Promo Codes (2025)**  
